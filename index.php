@@ -1,1 +1,1 @@
-jo ganteng banget
+jo ganteng
